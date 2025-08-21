@@ -8,7 +8,7 @@
 
 > tell me if I (or my friends) make you feel uncomfortable or weird out...!! I respect boundaries strictly
 
-> im socially awkward and apathetic sometimes sorry if i come out as rude
+> im really socially awkward and apathetic sorry if i come out as rude
 
 > basic dni criteria i block freely idfk just dont be a freak
 
