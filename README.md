@@ -1,19 +1,13 @@
-> rey / spencer or mars (by my kins too)
+. rey , mars , luna ( or by other kins )
 
-> he / any no preference
+. he / any ( no preferences )
 
-> fictionkin (heavily mars)
+. fictkin
 
-> iwecuf/cf/p. I go nonverbal a lot if I'm uncomfy
+. im. really awkward and apathetic sorry if i come out rude
 
-> tell me if I (or my friends) make you feel uncomfortable or weird out...!! I respect boundaries strictly
+. pls tell me if i make you uncomfy!
 
-> im really socially awkward and apathetic sorry if i come out as rude
+. check strawpage 4 more info ( ON WIP )
 
-> basic dni criteria i block freely idfk just dont be a freak
-
-> more info on rentry/straw (ON WIP)
-
-> i dont even bother to make this look pretty
-
-> the REAL mars solarballs trust
+. i don't even bother to make this pretty
