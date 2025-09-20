@@ -1,13 +1,5 @@
-. rey , mars , luna ( or by other kins )
-
-. he / any ( no preferences )
-
-. fictkin
-
-. im. really awkward and apathetic sorry if i come out rude
-
-. pls tell me if i make you uncomfy!
-
-. check strawpage 4 more info ( ON WIP )
-
-. i don't even bother to make this pretty
+biggest mars kinnie... wut! 
+yeah i don't know you can call me rey or reyrey as a nickname (or mars / luna)
+im really awkward so I appreciate you interacting first... 
+neithlunasalis ceo! ILOVE MY DOOMED MOON YURI 🐊🦭🦋
+wait... #noticing 👀
